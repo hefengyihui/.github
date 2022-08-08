@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi 这里是和风议会 👋
+
+🍿 加入我们，或查看更详细的介绍 [请访问这里](https://www.hefengyihui.com/)
 
 <!--
 
